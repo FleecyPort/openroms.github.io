@@ -14,3 +14,5 @@ The website isn't even done, so hold on. It's being made.
 [Discord Server](https://discord.gg/PCQRkZb)
 
 Site made by FleecyPort#1824
+ 
+We need more people in the server if you can invite please do.
